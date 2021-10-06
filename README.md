@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @gwegowy
 - 👀 I’m interested in illegal substances
 - 🌱 I’m currently learning how to rob
-- 💞️ I’m looking to collaborate on Pornhub
+- 💞️ I’m looking to collaborate on dream real legit spedrun man chase
+-dududu
 - 📫 How to reach me myanmar
 
 <!---
